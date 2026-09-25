@@ -1,4 +1,4 @@
-![QNAYDS Hackers Academy - Best Ethical Hacking Institute in Manjeri, Kerala]qnayds-best-ethical-hacking-institute-in-manjeri-kerala.jpg
+![QNAYDS Hackers Academy - Best Ethical Hacking Institute in Manjeri Kerala](qnayds-best-ethical-hacking-institute-in-manjeri-kerala.jpg)
 ### 🌐 Official Website: https://hackers-academy.qnayds.in
 
 ---
